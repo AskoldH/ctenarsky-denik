@@ -3,7 +3,7 @@
 ## Autor:
 `Mark Twain (Samuel Langhorne Clemens) - 1835 až začátek 20. století. Byl to americký novinář a spisovatel. Mark Twain je jeho pseudonym. V jeho rodné Missouri se i odehrávají jeho děje jeho románů. Je představitel amerického realismu a naturalismu.`
 ## Charakteristika literárního díla:
-```Dílo je realistický román, autor se snaží popsat život v Americe takový jaký byl. Autor napsal knihu podle skutečných událostí z jeho dětství. Podrobně je popisován život střední vrstvy ale popisuje i spodní a vrchní společenskou vrstvu. Je použita er-forma.```
+`Dílo je realistický román, autor se snaží popsat život v Americe takový` `jaký byl. Autor napsal knihu podle skutečných událostí z jeho dětství.` Podrobně je popisován život střední vrstvy ale popisuje i spodní a vrchní společenskou vrstvu. Je použita er-forma.
 ## Postavy:
 * Tom Sawyer - mladý hoch s dobrodružnou povahou a velkou představivostí, je tvrdohlavý, často se dostává do problémů
 * teta Polly - Tom s ní žije, je to jeho teta se kterou má často spory, je milá, hodná a silně věřící
