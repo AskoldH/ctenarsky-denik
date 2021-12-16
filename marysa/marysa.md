@@ -1,0 +1,17 @@
+## Dílo:
+Maryša
+## Autor:
+* Alois Mrštík - prozaik a dramatik, učitel, druhá půlka 19. století až 1925.
+* Vilém Mrštík - prozaik a dramatik, překladatel, literární a publicistická činnost, druhá 	půlka 19. století až počátek 20. století.
+## Charakteristika literárního díla:
+Literární druh je drama, přímá řeč, scénické poznámky, psáno jako divadelní hra. Žánr je tragédie, špatný konec. Literární směr je kritický realismus, realistické drama, snaží se přiblížit život na vesnici, mezilidské vztahy, lidské hodnoty.
+## Postavy:
+* Lízal - postava sedláka, na prvním místě má peníze, pak až štěstí dcery.
+* Maryša - Lízalova dcera, milující žena až trpí pro svou lásku
+* Lízalova manželka Lízalka - matka Maryši, nezná lítost a pochopení, chladná
+* Filip Vávra - muž hledící víc na věno jeho ženy, než na její štěstí, vdovec se 3-mi dětmi
+* Francek - do něj je zamilovaná Maryša, je upřímný a nefalešný
+## Děj:
+První jednání. Lízal lituje, že dal svému nezodpovědnému synovi půl lánu. Domlouvá se s Vávrou, že mu dá za ženu Maryšu a věno k tomu 3,700 peněz, Vávra chce víc, jelikož má dluhy. Francek, který jde na tři roky na vojnu se chce rozloučit s Maryšou, lízal to zmařil, Francek prosí Maryšu ať na něj počká. Druhé jednání. Maryša je zoufalá, nechce za manžela Vávru o kterém se říká, že je tak zlý, že svou ženu mrtvou přivedl do hrobu. Maryša se radí se svojí tetou Strouhalkou, ta jí ale radí, aby si Vávru vzala. Lízal začíná přemýšlet, že Maryši bude u Vávry škoda, je ale přesvědčen že to tak bude nejlepší. Jednoho dne přijíždí Vávra pro Maryšu, ta dává najevo, že ho nechce, Vávra říká, že se o ni dobře postará. Nakonec Maryša souhlasí, se svatbou, aby nedělala ostudu rodině, aby byla správná dcera. Třetí jednání je o dva roky později. Francek se vrací z vojny a s lítostí zjišťuje, že je Maryša vdaná, jde do hospody, kde následně přichází i Maryša, všichni v hospodě si začnou nahlas povídat, jak byla krásná a plná života, nicméně teď je bílá jako zeď a kost a kůže bez života. Lízal dělá, že to neslyší. Lizalovi pak řeknou jak to doopravdy je, Lízalovi je líto, že ji Vávra bije a chce po ní neustále peníze, díky tomu začíná pít. Lízal se dozvídá , že ho Vávra žaluje. Lízal s Vávrou se pohádají, Lízal mu nechce samozřejmě nic dát. Do situace se vměšuje Francek, který vyhrožuje nebo spíš oznamuje Vávrovi, že bude chodit za Maryšou. Čtvrté jednání. Francek přichází za Maryšou, ten nechce aby byla viděna jako žena, která podvádí svého muže, i když všichni věděli, že Maryša má ráda jen Francka. Maryša mu vykládá, že je nespokojená, jako východisko vidí smrt sebe nebo Vávry otrávením. Francek to chtěl vyřešit odjezdem do Brna, nabídl jí půlnoční sraz u splavu, nebo že si pro ni přijde ve dne. Když se Vávra dozvídá, že Francek byl u nich doma a domluvil si sraz s Maryšou u splavu o půlnoci, vzal pušku aby zastřelil Francka, ten naštěstí uhýbá střele. Páté jednání. Maryša otráví jedem v kávě Vávru, pak se i k tomuto činu přiznává.
+## Závěr:
+Dílo dosti nelichotivě popisuje českou vesnici, zkoumá moc peněz, sílu předsudků, vynucenou pokoru a poslušnost a nebo taky ztrátu svobodně se rozhodovat ve svém životě, což přináší údajně jen neštěstí. Dílo se zařadilo již ke klasickým představením českých divadel, ve kterých se objevuje pravidelně. 
